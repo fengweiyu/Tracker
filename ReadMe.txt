@@ -1,0 +1,1 @@
+Copyright ownership belongs to China Aerospace Telecommunications Ltd., shall not be reproduced , copied, or used in other ways without permission. Otherwise China Aerospace Telecommunications Ltd. will have the right to pursue legal responsibilities
